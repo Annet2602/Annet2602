@@ -2,4 +2,4 @@
 - 👀 I am interested in drawing, books and new acquaintances.
 - 🌱I am currently studying at a school.
 - 💞️ I want to collaborate with Discord and Twitch
-- 📫 How to contact me instagram: mrr_owo or mail anna11092004532@gmail.com
+- 📫 How to contact me telegram: https://t.me/A_sechkals or mail anna11092004532@gmail.com
